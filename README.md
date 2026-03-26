@@ -1,1 +1,0 @@
-# ardominguezm-reporte-snies-gics
